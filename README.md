@@ -1,1 +1,1 @@
-# Ryan Guilmette's digital project portfolio
+# Ryan Guilmette's Digital Project Portfolio
